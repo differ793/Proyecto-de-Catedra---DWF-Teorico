@@ -1,1 +1,1 @@
-# Proyecto-de-Catedra---DWF-Teorico
+# Proyecto de Catedra DWF Teorico
